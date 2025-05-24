@@ -1,2 +1,2 @@
 # game
-[game](https://thankful-ball-2f1.notion.site/apple-1fdefd403d6080028234c96c3119127c?pvs=4)
+[touch->](https://thankful-ball-2f1.notion.site/game-1fdefd403d60807686bae4a7f5a2f9ad?pvs=4)
